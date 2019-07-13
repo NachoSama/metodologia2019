@@ -1,1 +1,3 @@
-# metodologia2019
+# Metodologia2019
+
+Raúl Valenzuela- José Vera
